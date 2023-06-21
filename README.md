@@ -1,4 +1,4 @@
-### Hi there 👋 <br /> 
+### Hello there 👋 <br /> 
 🔭 I’m currently studying at Wroclaw University of Science and Technology. <br /> 
 📫 Reach me through email : mateuszkrupa123@wp.pl.
 <br /> <br /> 
